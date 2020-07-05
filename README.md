@@ -1,2 +1,0 @@
-# Suggestions
-To send Suggetions
